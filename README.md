@@ -1,5 +1,5 @@
 
-MrJohnnyc08 - John - Jogn
+bloxxerjogn - John - Jogn
 (He/Him)
 
 ---
@@ -14,9 +14,7 @@ I play too much Roblox.
 
 
 # Current Projects
-Yet Another Disaster Game (YADG)
 
-https://www.roblox.com/join/ahde9
 
 ---
 
